@@ -1,12 +1,12 @@
 - 👋 Hi, I’m @AAmir1361
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 👀 MAHNAZ HERIS
+- 🌱MAHNAZ HERIS
+  💕💔...MAHNAZ HERIS
+- 📫 MAHNAZ HERIS
+- 😄 Pronouns:🍺
+- ⚡ 🎖️🤟
 
 <!---
-AAmir1361/AAmir1361 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+AAmir1361/AAmir1361 is a ✨MAHNAZ HERIS ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
